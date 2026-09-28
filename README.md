@@ -1,0 +1,1 @@
+# Speccy-Full-Version-Unlocked
